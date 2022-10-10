@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Aditi Jain
+- 👀 I’m interested in Blockchain Technology
+- 🌱 I’m currently learning to build NFTs
+- 💞️ I’m looking to collaborate on any tech projects
+- 📫 How to reach me aditijain1100@gmail.com
